@@ -199,4 +199,4 @@ Gold Layer
 
 **Murad Kamil**
 
-LinkedIn: https://www.linkedin.com/in/murad-kamil/
+LinkedIn: https://www.linkedin.com/in/muradkamil/
